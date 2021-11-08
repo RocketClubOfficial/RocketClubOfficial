@@ -1,0 +1,1 @@
+[![Trent Slutzky - Engineer, Maker, Programmer](https://pimp-my-readme.webapp.io/pimp-my-readme/sliding-text?emojis=&text=Trent%2520Slutzky%2520-%2520Engineer%252C%2520Maker%252C%2520Programmer)](https://pimp-my-readme.webapp.io)
